@@ -1,1 +1,1 @@
-# kjknjmo
+ola sou mateus tenho 16 anos e adoro brawl stars meu main é a piper, piper é um brawler épico que tem uma mecanica de sniper, conforme ela esta mais longe dos outros o seu dano aumenta, ela é consideirada a MELHOR sniper do jogo pela sua mecânica simnples e facil de se jogar, principalmente pelos seus acessorios e sua satr powers, seus melhores mapas são nocaute e extermino pricipalmente o mapa descampado onde ela se destaca
